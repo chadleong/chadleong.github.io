@@ -16,4 +16,4 @@ In the midst of all these external shifts, my personal journey of reconnection w
 
 2025 challenges us to reconcile progress with purpose, to balance the cutting edge of innovation with the timeless need for compassion and understanding. And as I write these words, I am filled with a quiet resolve to nurture this balance, cherishing the personal amidst the global, and striving to create a future where every breakthrough serves the deeper, enduring quest for meaning.
 
-ces't la vie
+c'est la vie
